@@ -1,4 +1,5 @@
-<img width="736" height="690" alt="c7a6af96fc906f960ac71256e25e65fc" src="https://github.com/user-attachments/assets/91cb4558-a690-4353-bd1a-b1a5e9a0c904" />
+<img width="736" height="611" alt="48066dd352b380868fb0b7baea8b45ef" src="https://github.com/user-attachments/assets/b5a1cdf4-147c-4bda-82ae-c9e7e80d2ce7" />
+
 
    ![](https://komarev.com/ghpvc/?username=vixievlopz&label=HABIT&message=69&color=8B0000)
 <p align="center">
