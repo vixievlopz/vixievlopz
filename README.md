@@ -1,6 +1,8 @@
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/51e8c132-7749-4e51-8c0e-58589c418a69" />
 
+hi. ok refer to me as either my alters, ryan, or vixx i perfer ryan but ok! (nicknames ok ✔️) im learning guitar to become the REAL ryan ross. pls talk to me about patd i love. i also yume w ryan so hi me + ryan = canon but i also fictkin ryan. if thats possible. 
 
+i lov all my friends so MUCH!!! hi jaz i love u so much !!!!! and harvey ur so awesome and cool ! i love obsession so much and im happy u got me into it were literally nikki and sarah 😳😳😳and vinny u two i loveu so much!!  i loved spending time wit u both <3 morecoomming soon ok.
 
    ![](https://komarev.com/ghpvc/?username=vixievlopz&label=RYRY&message=69&color=E2A68B)
 <p align="center">
