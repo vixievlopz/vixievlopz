@@ -4,7 +4,6 @@ hi. ok refer to me as either my alters, ryan, or vixx i perfer ryan but ok! (nic
 
 usually at bandom but u can also find me at spawn, or just random places if im with friends/party dniuc/dncuddle im usually offtab. i dont like big groups and they can stress me out alot sorry... if im not w anybody feel free to c+h!
 
-   <img width="330" height="248" alt="image" src="https://github.com/user-attachments/assets/d6732876-96f7-4c39-836e-a2ee4fce0d6d" />
 
 
 i lov all my friends so MUCH!!! hi jaz i love u so much !!!!! and harvey ur so awesome and cool ! i love obsession so much and im happy u got me into it were literally nikki and sarah 😳😳😳and vinny u two i loveu so much!!  i loved spending time wit u both <3 morecoomming soon ok.
