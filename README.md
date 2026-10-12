@@ -1,5 +1,7 @@
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/51e8c132-7749-4e51-8c0e-58589c418a69" />
 
+![](https://komarev.com/ghpvc/?username=vixievlopz&label=HABIT&message=69&color=8B0000)
+![](https://komarev.com/ghpvc/?username=vixievlopz&label=HABIT&message=69=8B0000)
 hi. ok refer to me as either my alters, ryan, or vixx i perfer ryan but ok! (nicknames ok ✔️) im learning guitar to become the REAL ryan ross. pls talk to me about patd, twilight, abd emh. i love. i also yume w ryan(ross) so hi me + ryan = canon but i also fictkin ryan. if thats possible.                               
 
 usually at bandom but u can also find me at spawn, or just random places if im with friends/party dniuc/dncuddle im usually offtab.
