@@ -24,7 +24,7 @@ i dont like big groups and they can stress me out alot sorry... if im not w anyb
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4cf378f8-6afb-44e2-89c9-500c4a46624c" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5c4cc43b-e339-4e77-9f2c-be8722360090" /><img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/dbfa303f-8b4f-4882-862e-00f029903205" /><img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/e5d25a12-51ea-46fb-b9f1-2a0c0497d2ab" />
 
 
- i lov all my friends so MUCH!!! hi jaz i love u so much !!!!! and harvey ur so awesome and cool ! i love obsession so much and im happy u got me into it were literally nikki and sarah / bella swan and alice cullen BLUSHES 😳😳😳and vinny u two i loveu so much!!  i loved spending time wit u both <3 u too rue ur always so caring !!, padla ur brendon ponys are so awesome and i adore them so much their beuitful!!!1! tinky ur so awesome and intresting!! i love talking to u <3
+ i lov all my friends so MUCH!!! hi RUE i love u so much !!!!! and harvey ur so awesome and cool ! i love obsession so much and im happy u got me into it were literally nikki and sarah / bella swan and alice cullen BLUSHES 😳😳😳and vinny u two i loveu so much!!  i loved spending time wit u both <3 , padla ur brendon ponys are so awesome and i adore them so much their beuitful!!!1! tinky ur so awesome and intresting!! i love talking to u <3
 
 
 
