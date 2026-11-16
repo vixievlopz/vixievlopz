@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=vixievlopz&label=MILKBOY&message=69&color=E1D7DF)
 
-hi. ok refer to me as either my alters, davhie, or vixx i perfer ryan but ok! (nicknames ok ✔️) im learning guitar to become the REAL ryan ross. pls talk to me about patd, twilight, abd emh. i love. i dint yume with Ryan Ross anymore thanks THUMBS up.                             
+hi. ok refer to me as either my alters, davhie, or vixx i perfer davhie but ok! (nicknames ok ✔️) im learning guitar to become the REAL ryan ross. pls talk to me about patd, twilight, abd emh. i love. i dint yume with Ryan Ross anymore thanks THUMBS up.                             
 
 usually at bandom NO IM NOT NEVER but u can also find me at spawn, or just random places if im with friends/party dniuc/dncuddle im usually offtab.
 i dont like big groups and they can stress me out alot sorry... if im not w anybody feel free to c+h!  
